@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there, Soph here!
 
 <h2> 🚀 &nbsp;Some tools and skills I Have Used and Learned</h2>
 <p align="left">
